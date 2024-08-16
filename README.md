@@ -1,3 +1,4 @@
+eu victor, eu acordo cedo vo prra escola depois da escola eu almoço durmo um pouco,vou pra academia depois chego em casa tomo um banho troco de roupa como alguma coisa pego minha moto e vou pro serviço trabalhar na pizaria 
 ## Hi there 👋
 
 <!--
